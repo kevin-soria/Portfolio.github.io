@@ -3,4 +3,4 @@ there awill be moreinfo
 and perhaps more
 and maybe some more
 there will be skills
-and expeirrec
+and expiernce
