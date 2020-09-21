@@ -6,7 +6,4 @@ there will be skills
 and expiernce
 and projects
 and readme
-sdafgdslagkhlkds.an
-sdfgasdljkglkjasdmhnfgl';sda.f
-sdfg/aldskjgv;klsda
-sdfafgsadk
+
